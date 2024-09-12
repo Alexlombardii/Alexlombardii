@@ -2,7 +2,7 @@
 - 👀 I’m interested in Machine Learning and AI
 - 🌱 I’m currently learning Finetuning and NLP
 - 💞️ I’m looking to collaborate on Anything AI and Physics related
-- 📫 How to reach me 👀
+- 📫 How to reach me g.a.lombardi01@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I have a 180kg benchpress PR
 
